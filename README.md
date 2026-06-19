@@ -17,3 +17,5 @@ Qualquer dúvida entre em contato
 
 ![](https://media.tenor.com/n6raYsZqflgAAAAC/rootgrcves-patrickjane.gif)
 ![](https://media.tenor.com/XDlsIovfF9oAAAAd/rootgrcves-patrickjane.gif)
+![](https://media.tenor.com/jWW009lhsRoAAAAd/outer-banks.gif)
+![](https://media.tenor.com/gXMSa0VHNWoAAAAC/shameless-lol.gif)

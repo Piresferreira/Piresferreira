@@ -16,6 +16,5 @@ Qualquer dúvida entre em contato
 <a href="mailto:iasmim.pires.ferreira@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
 ![](https://media.tenor.com/n6raYsZqflgAAAAC/rootgrcves-patrickjane.gif)
-![](https://media.tenor.com/XDlsIovfF9oAAAAd/rootgrcves-patrickjane.gif)
 ![](https://media.tenor.com/jWW009lhsRoAAAAd/outer-banks.gif)
 ![](https://media.tenor.com/gXMSa0VHNWoAAAAC/shameless-lol.gif)
